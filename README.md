@@ -1,4 +1,4 @@
-<img src="https://media0.giphy.com/media/IjTEGrmnQRK6s/giphy.gif?cid=ecf05e47tlozn0w45trd3tj7wj6iim4s2f6p4116dtsd7rif&ep=v1_gifs_search&rid=giphy.gif&ct=g" width="1000" height="600">
+<img src="https://media0.giphy.com/media/IjTEGrmnQRK6s/giphy.gif?cid=ecf05e47tlozn0w45trd3tj7wj6iim4s2f6p4116dtsd7rif&ep=v1_gifs_search&rid=giphy.gif&ct=g](https://www.google.com/url?sa=i&url=https%3A%2F%2Fgametrog.com%2Fgame-reviews%2Fsega-systems-game-reviews%2Fsega-saturn-reviews%2Fmetal-slug-for-the-sega-saturn-import-review%2F&psig=AOvVaw0QkIRHHT8-5wX_YdH7lSlQ&ust=1684804469765000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCIjvxvHfh_8CFQAAAAAdAAAAABAE)" width="1000" height="600">
 
 
 <br>
