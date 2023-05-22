@@ -1,4 +1,4 @@
-<img src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fgametrog.com%2Fgame-reviews%2Fsega-systems-game-reviews%2Fsega-saturn-reviews%2Fmetal-slug-for-the-sega-saturn-import-review%2F&psig=AOvVaw0QkIRHHT8-5wX_YdH7lSlQ&ust=1684804469765000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCIjvxvHfh_8CFQAAAAAdAAAAABAE" width="1000" height="600">
+<img src="https://i0.wp.com/gametrog.com/wp-content/uploads/2020/05/metal-slug-personajes-gif-12.gif?resize=292%2C240&ssl=1" width="1000" height="600">
 
 
 <br>
