@@ -42,6 +42,6 @@
 
 <br>
 
-![Jim GitHub stats](https://github-readme-stats.vercel.app/api?username=jimdmm&show_icons=true&theme=dark)
+![Jack GitHub stats](https://github-readme-stats.vercel.app/api?username=jackdmfd&show_icons=true&theme=dark)
 
-[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=jimdmm&theme=dark&card_width=470)](https://github.com/jimdmm/github-readme-stats)
+[![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=jackdmfd&theme=dark&card_width=470)](https://github.com/jackdmfd/github-readme-stats)
